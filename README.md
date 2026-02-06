@@ -2,4 +2,4 @@
 
 ## Collaborators
 
-- Chapman!
+- Chapman - Destroyer of Chickens
