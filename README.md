@@ -2,7 +2,7 @@
 
 ## Collaborators
 
-- Chapman!
 - Baichuan! -the Gunbreaker
-- Davis! - The Dragon of The Void
+- Davis! - I deserve an F! Please fail me!
+- Chapman - Destroyer of Chickens
 - Devin! - Flaming Pianist
