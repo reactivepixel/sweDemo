@@ -7,5 +7,6 @@
 - Chapman! - Destroyer of Chickens
 - Devin! - Flaming Pianist
 - Ramirez! -do,er of things!
+- TK - Cooker
 - Ramirez -do,er of things!
 - Trey - I like chicken
