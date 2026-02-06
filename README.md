@@ -3,8 +3,9 @@
 ## Collaborators
 
 - Baichuan! -the Gunbreaker
-- Davis! - I would like to pass if possible, thank you.
+- Davis! - the Dragon of the Void
 - Chapman! - Destroyer of Chickens
 - Devin! - Flaming Pianist
+- TK - Cooker
 - Ramirez! -do,er of things!
-- Frank!
+- Frank! - Thant
