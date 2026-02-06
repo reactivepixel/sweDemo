@@ -4,6 +4,6 @@
 
 - Baichuan! -the Gunbreaker
 - Davis! - I would like to pass if possible, thank you.
-- Chapman! - Destroyer of Chickens
+- Chapman - Destroyer of Chickens
 - Devin! - Flaming Pianist
 - Ramirez! -do,er of things!
